@@ -1,5 +1,5 @@
 
-Documents related to the Claremont Colleges Llibrary 2020-2021 Collections as Data project: 
+Documents related to the Claremont Colleges Library 2020-2021 Collections as Data project: 
 ## Surfacing hidden water data: Water, people, displacement in Southern California
 
 
